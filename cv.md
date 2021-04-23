@@ -4,7 +4,9 @@
 
 
 **REGINA DRYAGINA**
-*** 
+
+***
+
 my location: Moscow city, phone number: +7-977-776-83-09, e-mail: box977776@gmail.com    
 
 **ENTRY-LEVEL COMPUTER PROGRAMMER**  
